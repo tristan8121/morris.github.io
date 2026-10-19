@@ -6,3 +6,5 @@ From practical mobile tools to entertainment apps and casual games, TRISTAN MORR
 
 We are committed to maintaining and improving our apps through regular updates, performance enhancements, and thoughtful development.
 
+google-site-verification: google5864be6fc62b9a45.html
+
